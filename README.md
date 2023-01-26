@@ -15,3 +15,5 @@ la creatura (me) :heart:
 > don't joke flirt with me, it's uncomfy and weird
 
 > if yr 18+ please dni unless i int first. thank ya
+
+![](https://cdn.discordapp.com/attachments/729124835296280689/1068074827069542440/image.jpeg)
