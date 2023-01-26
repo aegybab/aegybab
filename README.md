@@ -6,9 +6,9 @@ la creatura (me) :heart:
 
 **hifu** / **shu**  (hika ok if close)
 
-**xe/xyr** + **ro/rose** pref ([others](https://en.pronouns.page/@gigolo)) he/they ok **only if close**
+**xe/xyr** + **ro/rose** pref ([others](https://en.pronouns.page/@gigolo)) he/they *ok* `only if close`
 
-taken x2 meow ^_^ :two_hearts:
+`taken x2 meow` ^_^ :two_hearts:
 
 > don't copy / take inspo from my skins unless i've given permission.
 
