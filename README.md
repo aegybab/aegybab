@@ -6,7 +6,7 @@ la creatura (me) :heart:
 
 **hifu** / **shu**  (hika ok if close)
 
-**xe/xyr** + **ro/rose** pref ([others](https://en.pronouns.page/@gigolo))
+**xe/xyr** + **ro/rose** pref ([others](https://en.pronouns.page/@gigolo)) he/they ok **only if close**
 
 taken x2 meow ^_^ :two_hearts:
 
