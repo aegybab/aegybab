@@ -12,7 +12,7 @@ la creatura (me) :heart:
 
 > don't copy / take inspo from my skins unless i've given permission.
 
-> don't joke flirt with me, it's uncomfy and weird
+> don't jokingly flirt / flirt in general with me, it's uncomfy and weird
 
 > if yr 18+ please dni unless i int first. thank ya
 
