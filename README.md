@@ -1,10 +1,10 @@
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1068048287388672000/image.jpeg)
 
-_**hellooo!**_
+_**hellooo!**_ *pls read more on my rentry*
 
-i'm shu / dez / jack :3 **xe/xyr** + ([others](https://en.pronouns.page/@gigolo)) he/they is ok if we're friends
+i'm shu / dez / jack :3 **xe/xyr** + ([others](https://en.pronouns.page/@gigolo)) he/they ok if we're friends
 
-> i might often be a default pony but don't copy / take inspo from my actualskins unless i've given permission!!
+> i might often be a default pony to hie my skins but please don't copy / take inspo from my actual skins unless i've given permission, don't be afraid to ask. it's not that hard!
 
 > if yr 18+ please dni unless i int first. thank ya!!
 
