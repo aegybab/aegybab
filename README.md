@@ -1,6 +1,6 @@
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1068048287388672000/image.jpeg)
 
-_**hellooo!**_ *pls read more on my rentry*
+_**hellooo!**_ *more is on my rentry*
 
 i'm shu / dez / jack :3 **xe/xyr** + ([others](https://en.pronouns.page/@gigolo)) he/they ok if we're friends
 
