@@ -2,7 +2,8 @@
 
 _**hellooo!**_ *more is on my rentry*
 
-i'm shu / dez / jack :3 **xe/xyr** + ([others](https://en.pronouns.page/@gigolo)) he/they ok if we're friends
+call me shu / dez / jack :3  
+**xe/xyr** + ([others](https://en.pronouns.page/@gigolo)) he/they ok if we're friends
 
 > i might often be a default pony to hide my skins but please don't copy / take inspo from my actual skins unless i've given permission, please don't be afraid to ask. it's not that hard!
 
