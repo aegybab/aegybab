@@ -7,7 +7,7 @@ call me shu / dez / jack !!
 i'm hyperfixated on enstars, hypmic, and hlvrai :fire: yay
 
 often semi-verbal / selectively mute (i'm not ignoring you i just prefer not to speak)  
-so feel free to int if you're fine with that, i enjoy company  
+so feel free to int if you're fine with that, i do enjoy company and other people talking  
 
 > i might often be a default pony to hide my skins but please don't copy / take inspo from my actual skins unless i've given permission, please don't be afraid to ask! i don't bite
 
