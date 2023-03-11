@@ -14,4 +14,4 @@ so feel free to int if you're fine with that, i do enjoy company & other people 
 
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1068074827069542440/image.jpeg)
 
-hi sonny if u see this then know im gay for u ily :fire: :fire:
+hi sonny if u see this then know im gay for u ily... :fire: :fire:
