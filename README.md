@@ -6,8 +6,8 @@ call me shu / dez / jack !!
 **xe/xem** pref [+](https://en.pronouns.page/@gigolo) he/they ok if we're friends  
 i'm hyperfixated on enstars, hypmic, and hlvrai :fire: yay
 
-i'm usually semi-verbal / selectively mute (no i am not ignoring you, i just don't like talking sometimes.)  
-so feel free to int if you're fine with that  
+often semi-verbal / selectively mute (i'm not ignoring you i just prefer not to speak)  
+so feel free to int if you're fine with that, i enjoy company  
 
 > i might often be a default pony to hide my skins but please don't copy / take inspo from my actual skins unless i've given permission, please don't be afraid to ask! i don't bite
 
