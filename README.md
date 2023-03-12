@@ -3,9 +3,10 @@
 _**hellooo!**_ *more is on my rentry*
 
 call me shu / dez / jack !! **xe**/*rose*/he [++](https://en.pronouns.page/@gigolo)  
-i'm hyperfixated on enstars, hypmic, and hlvrai :fire: yay
+i'm hyperfixated on enstars, hypmic, and hlvrai :fire: yayy  
+possible bpd & other stuff sorry if i act weird ... ermmm [me](http://txti.es/lastwish)s
 
-often semi-verbal / selectively mute (i'm not ignoring you, i just prefer not to speak)  
+often semi-verbal / selectively mute (i'm not ignoring you, i just prefer not to speak or am afk)  
 so feel free to int if you're fine with that, i do enjoy company & other people talking 💕  
 
 > i might often be a default pony to hide my skins but please don't copy / take inspo from my actual skins unless i've given permission, please don't be afraid to ask! i don't bite
