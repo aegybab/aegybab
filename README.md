@@ -2,7 +2,7 @@
 
 _**hellooo!**_ *more is on my rentry*
 
-call me shu / dez / jack !! **xe/xem** & **ro/rose** pref [+](https://en.pronouns.page/@gigolo)  
+call me shu / dez / jack !! **xe**/*rose*/he [++](https://en.pronouns.page/@gigolo)  
 i'm hyperfixated on enstars, hypmic, and hlvrai :fire: yay
 
 often semi-verbal / selectively mute (i'm not ignoring you, i just prefer not to speak)  
