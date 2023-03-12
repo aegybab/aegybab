@@ -4,7 +4,7 @@ _**hellooo!**_ *more is on my rentry*
 
 call me shu / dez / jack !! **xe**/*rose*/he [++](https://en.pronouns.page/@gigolo)  
 i'm hyperfixated on enstars, hypmic, and hlvrai :fire: yayy  
-possible bpd & other stuff sorry if i act weird ... ermmm [me](http://txti.es/lastwish)s
+*possible bpd & other stuff sorry if i act weird*  
 
 often semi-verbal / selectively mute (i'm not ignoring you, i just prefer not to speak or am afk)  
 so feel free to int if you're fine with that, i do enjoy company & other people talking 💕  
