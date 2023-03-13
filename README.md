@@ -3,7 +3,7 @@
 _**hellooo!**_ *more is on my rentry*
 
 i'm jack / meru / shu ( too many names ermm.. )  
-**xe**/*rose* [++](https://en.pronouns.page/@gigolo) whatevva  
+**xe**/*rose* [++](https://en.pronouns.page/@gigolo) whatevva.. he/him ok if already friends  
 hyperfix :fire: enstars / hypmic / hlvrai  
 *possible bpd & other stuff sorry if i act weird*  
 often semi-verbal / selectively mute
