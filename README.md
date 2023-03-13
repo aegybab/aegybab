@@ -2,7 +2,7 @@
 
 *hi just read my [rentry](https://rentry.org/scenario_liar) instead thabks*
 
-call me jack / meru / shu +[others](https://en.pronouns.page/@gigolo) **xe**/**rose**  
+call me jack / meru / shu [+](https://en.pronouns.page/@gigolo) **xe**/**rose**  
 very mentally ill sorry if i act weird oops  
 often semi-verbal + selective mutism  
 in a relationship so dont flirt with me if were not close LMFFAOO  
