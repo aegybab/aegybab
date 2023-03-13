@@ -2,8 +2,9 @@
 
 _**hellooo!**_ *more is on my rentry*
 
-i'm jack / meru / shu ( too many names ermm.. ) **xe**/*rose* [++](https://en.pronouns.page/@gigolo)  
-hyperfix on enstars, hypmic, and hlvrai :fire: yayy  
+i'm jack / meru / shu ( too many names ermm.. )  
+**xe**/*rose* [++](https://en.pronouns.page/@gigolo) whatevva  
+hyperfix :fire: enstars / hypmic / hlvrai  
 *possible bpd & other stuff sorry if i act weird*  
 often semi-verbal / selectively mute
 
