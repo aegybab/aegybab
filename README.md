@@ -2,14 +2,12 @@
 
 _**hellooo!**_ *more is on my rentry*
 
-call me shu / dez / jack !! **xe**/*rose* [++](https://en.pronouns.page/@gigolo)  
-i'm hyperfixated on enstars, hypmic, and hlvrai :fire: yayy  
+cshu / dez / jack, **xe**/*rose* [++](https://en.pronouns.page/@gigolo)  
+hyperfix on enstars, hypmic, and hlvrai :fire: yayy  
 *possible bpd & other stuff sorry if i act weird*  
+often semi-verbal / selectively mute
 
-often semi-verbal / selectively mute (i'm not ignoring you, i just prefer not to speak or am afk)  
-so feel free to int if you're fine with that, i do enjoy company & other people talking 💕  
-
-> i might often be a default pony to hide my skins but please don't copy / take inspo from my actual skins unless i've given permission, please don't be afraid to ask! i don't bite
+> don't take inspo without asking first ( feel free to whisp abt it, i don't bite )
 
 **if you're 18+ please dni unless i int first**
 
