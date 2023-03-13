@@ -8,7 +8,7 @@ hyperfix :fire: enstars / hypmic / hlvrai
 *possible bpd & other stuff sorry if i act weird*  
 often semi-verbal / selectively mute
 
-> don't take inspo without asking first ( feel free to whisp abt it, i don't bite )
+> don't copy / take inspo without asking first ( don't be afraid to ask, i don't bite )
 
 **if you're 18+ please dni unless i int first**
 
