@@ -1,11 +1,11 @@
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1068048287388672000/image.jpeg)
 
-hii just read my rentry :sob:
+*hi just read my [rentry](https://rentry.org/scenario_liar) instead thabks*
 
 call me jack / meru / shu [++](https://en.pronouns.page/@gigolo) **xe**/**rose**  
 very mentally ill sorry if i act weird oops  
 often semi-verbal + selective mutism  
-im in a relationship so dont flirt with me if idk u hrlp  
+im in a relationship so dont flirt with me if idk u hrlp LMFFF  
 
 > don't copy / take inspo without asking first ( don't be afraid to ask, i don't bite )
 
