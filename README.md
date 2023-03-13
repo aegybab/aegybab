@@ -2,7 +2,7 @@
 
 _**hellooo!**_ *more is on my rentry*
 
-call me shu / dez / jack !! **xe**/*rose*/he [++](https://en.pronouns.page/@gigolo)  
+call me shu / dez / jack !! **xe**/*rose* [++](https://en.pronouns.page/@gigolo)  
 i'm hyperfixated on enstars, hypmic, and hlvrai :fire: yayy  
 *possible bpd & other stuff sorry if i act weird*  
 
