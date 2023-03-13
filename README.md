@@ -4,8 +4,8 @@ _**hellooo!**_ *more is on my rentry*
 
 i'm jack / meru / shu ( too many names ermm.. )  
 **xe**/**rose** [++](https://en.pronouns.page/@gigolo) *whatevva*.. **he/him** ok if ik u  
-hyperfix :fire: enstars / hypmic / hlvrai  
-*possible bpd & other stuff sorry if i act weird*  
+**hyperfix** enstars / hypmic / hlvrai + more :fire:  
+*very mentally ill sorry if i act weird*  
 often semi-verbal / selectively mute
 
 > don't copy / take inspo without asking first ( don't be afraid to ask, i don't bite )
