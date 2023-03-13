@@ -2,7 +2,7 @@
 
 _**hellooo!**_ *more is on my rentry*
 
-cshu / dez / jack, **xe**/*rose* [++](https://en.pronouns.page/@gigolo)  
+jack / dez / shu / meru, **xe**/*rose* [++](https://en.pronouns.page/@gigolo)  
 hyperfix on enstars, hypmic, and hlvrai :fire: yayy  
 *possible bpd & other stuff sorry if i act weird*  
 often semi-verbal / selectively mute
