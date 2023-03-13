@@ -1,12 +1,12 @@
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1068048287388672000/image.jpeg)
 
-_**hellooo!**_ *more is on my rentry*
+hii just read my rentry
 
-i'm jack / meru / shu ( too many names ermm.. )  
-**xe**/**rose** [++](https://en.pronouns.page/@gigolo) *whatevva*.. **he/him** ok if ik u  
-**hyperfix** enstars / hypmic / hlvrai + more :fire:  
-*very mentally ill sorry if i act weird*  
-often semi-verbal / selectively mute
+call me jack / meru / shu ( too many names ermm )  
+**xe**/**rose** [++](https://en.pronouns.page/@gigolo)  
+very mentally ill sorry if i act weird oops  
+often semi-verbal + selective mutism  
+im in a relationship dont flirt with me if idk u  
 
 > don't copy / take inspo without asking first ( don't be afraid to ask, i don't bite )
 
@@ -14,4 +14,4 @@ often semi-verbal / selectively mute
 
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1068074827069542440/image.jpeg)
 
-hi sonny if u see this then know im gay for u ily... :fire: :fire:
+hi sonny if u see this then heyy ily... :fire: :fire:
