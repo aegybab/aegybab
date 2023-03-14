@@ -5,7 +5,7 @@
 call me jack / meru [++](https://en.pronouns.page/@gigolo) **xe**/rose  
 very mentally ill sorry if i act weird oops  
 often semi-verbal + selective mutism  
-in a qpr!! so dont flirt with me if were not close lawl  
+im in a qpr :3 dont flirt with me if were not close lawl  
 
 > don't copy / take inspo without asking first ( don't be afraid to ask, i don't bite )
 
