@@ -2,7 +2,7 @@
 
 call me jack / meru [++](https://en.pronouns.page/@gigolo) **xe**/rose, 13-14 ( may 12 ) xntp 9w8 enby achillean  
 very mentally ill im very sorry if i act weird . i usually don't int first & have social anxiety  
-i refer to [these guys](https://txti.es/lastwish) as myself .. if u dont like that then jus dont bother me 
+i refer to [these guys](https://txti.es/lastwish) as myself .. if u dont like that then jus dont bother me pleas 
 
 > don't copy / take inspo without asking first ( don't be afraid to ask, i don't bite )
 
