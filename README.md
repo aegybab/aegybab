@@ -9,8 +9,9 @@ umm i like enstars hypmic and hlvrai n other stuff
 
 + _**18+ & -12 dni**_  
 + **i overthink a lot**  
-+ **drama freaks dni PLEASE im so fucking tired of dealing with so much of this shit**  
-i hide freely & might forget why so. dont ask me why i hid u please its annoying  
++ **drama freaks dni PLEASE im so fucking tired of dealing with so much of this shit**
+ 
+> i hide freely & might forget why so dont ask me why i hid u please its annoying  
 
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1068074827069542440/image.jpeg)
 
