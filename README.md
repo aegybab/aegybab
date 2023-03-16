@@ -1,7 +1,7 @@
 *remkaing my rentry oops*
 
 call me jack / meru [++](https://en.pronouns.page/@gigolo) **xe**/rose, 13-14 (may 12)  
-very mentally ill sorry if i act weird oops . i usually don't int first  
+very mentally ill im very sorry if i act weird . i usually don't int first  
 
 > don't copy / take inspo without asking first ( don't be afraid to ask, i don't bite )
 
