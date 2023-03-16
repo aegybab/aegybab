@@ -1,4 +1,4 @@
-*hi read my [rentry](https://rentry.org/scenario_liar) instead thabks*
+*remkaing my rentry oops*
 
 call me jack / meru [++](https://en.pronouns.page/@gigolo) **xe**/rose  
 very mentally ill sorry if i act weird oops . i usually don't int first  
