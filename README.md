@@ -7,10 +7,10 @@ i like enstars hypmic hlvrai n other stuff :v [me in media](https://txti.es/last
 
 > **don't copy / take inspo without asking first** ( **don't be afraid to ask, i don't bite** )
 
-+ *18+ & -12 dni* + *profiction/proshippers kys* 
++ **18+ & -12 dni + profiction/proshippers kys** 
 + **drama freaks dni im so tired of dealing with this shit**
 + **please don't overuse sexual jokes or mention s/h & hospitals around me** 
  
-> i hide freely & have hidden a LOT of ppl. dont ask why i hid u i prolly wont remember
+> *i hide freely & have hidden a LOT of ppl. dont ask why i hid u i prolly wont remember*
 
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1068074827069542440/image.jpeg)
