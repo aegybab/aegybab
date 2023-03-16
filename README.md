@@ -9,7 +9,7 @@ uhmm i like enstars hypmic and hlvrai n other stuff
 
 > **don't copy / take inspo without asking first** ( **don't be afraid to ask, i don't bite** )
 
-+ _**18+ & -12 dni **_ ( it's uncomfortable )  
++ _**18+ & -12 dni**_ ( it's uncomfortable )  
 + **drama freaks dni PLEASE im so fucking tired of dealing with so much of this shit**
  
 > i hide freely & have hidden a LOT of ppl  
