@@ -6,7 +6,7 @@ i refer to [these guys](https://txti.es/lastwish) as myself . if u dont like tha
 
 > don't copy / take inspo without asking first ( don't be afraid to ask, i don't bite )
 
-**if you're 18+ please dni, -12 iffy & uncomfy**  
+**if you're 18+ please dni & -12 iffy..preferably dni**  
 **drama freaks dni PLEASE leave me out of it im so tired of dealing with so much shit**
 
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1068074827069542440/image.jpeg)
