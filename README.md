@@ -7,8 +7,8 @@ i like enstars hypmic and hlvrai n other stuff
 
 > **don't copy / take inspo without asking first** ( **don't be afraid to ask, i don't bite** )
 
-+ _**18+ & -12 dni**_  
-+ **drama freaks dni im so tired of dealing with shit**
++ _**18+ & -12 dni**_ + proship/profic kys 
++ **drama freaks dni im so tired of dealing with this shit**
  
 > i hide freely & have hidden a LOT of ppl  
 > dont ask why i hid u i prolly wont remember
