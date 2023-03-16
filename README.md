@@ -10,7 +10,6 @@ i like enstars hypmic hlvrai n other stuff :v [me in media](https://txti.es/last
 + _**18+ & -12 dni**_ + profiction/proshippers kys 
 + **drama freaks dni im so tired of dealing with this shit**
  
-> i hide freely & have hidden a LOT of ppl  
-> dont ask why i hid u i prolly wont remember
+> i hide freely & have hidden a LOT of ppl. dont ask why i hid u i prolly wont remember
 
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1068074827069542440/image.jpeg)
