@@ -7,7 +7,7 @@ i refer to [these guys](https://txti.es/lastwish) as myself .. if u dont like th
 > don't copy / take inspo without asking first ( don't be afraid to ask, i don't bite )
 
 + **if you're 18+ please dni & -12 iffy..preferably dni**  
-+ **i have a bad habit of overthinking & taking situations into my own hands**  
++ **i have a _bad habit_ of overthinking & taking situations into my own hands**  
 + **drama freaks dni PLEASE im so fucking tired of dealing with so much of this shit**  
 + **ex friends / friends of ex friends dni. i will hide you on sight**
 
