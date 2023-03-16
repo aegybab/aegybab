@@ -1,9 +1,11 @@
 > *remkaing my rentry oops*
 
-call me jack / meru [++](https://en.pronouns.page/@gigolo) **xe**/rose **13-14** xntp 9w8 enby achillean  
+call me jack / meru [++](https://en.pronouns.page/@gigolo) **xe**/rose  
+**13-14** xntp 9w8 enby achillean  
+
 mentally ill & very sorry if i act weird . i usually don't int first coz social anxiety..  
 i refer to [these guys](https://txti.es/lastwish) as myself .. if u dont like that then jus dont bother me pleas  
-umm i like enstars hypmic and hlvrai n other stuff
+uhmm i like enstars hypmic and hlvrai n other stuff
 
 > **don't copy / take inspo without asking first** ( **don't be afraid to ask, i don't bite** )
 
