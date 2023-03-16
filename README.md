@@ -9,6 +9,7 @@ i like enstars hypmic hlvrai n other stuff :v [me in media](https://txti.es/last
 
 + _**18+ & -12 dni**_ + profiction/proshippers kys 
 + **drama freaks dni im so tired of dealing with this shit**
++ **don't overuse sexual jokes around me & please don't mention s/h or hospitals 
  
 > i hide freely & have hidden a LOT of ppl. dont ask why i hid u i prolly wont remember
 
