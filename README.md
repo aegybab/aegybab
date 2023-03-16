@@ -7,9 +7,9 @@ umm i like enstars hypmic and hlvrai n other stuff
 
 > **don't copy / take inspo without asking first** ( **don't be afraid to ask, i don't bite** )
 
-+ _**if you're 18+ please dni & -12 iffy..preferably dni**_  
-+ i have a _really bad habit_ of overthinking  
-+ **drama freaks dni PLEASE im so fucking tired of dealing with so much of this shit**
++ _**18+ & -12 dni**_  
++ **i overthink a lot**  
++ **drama freaks dni PLEASE im so fucking tired of dealing with so much of this shit**  
 i hide freely & might forget why so. dont ask me why i hid u please its annoying  
 
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1068074827069542440/image.jpeg)
