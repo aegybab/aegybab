@@ -6,7 +6,7 @@ i like enstars hypmic hlvrai n other stuff :v [me in media](https://txti.es/last
 
 > **don't copy / take inspo without asking first** ( **don't be afraid to ask, i don't bite** )
 
-+ _**18+ & -12 dni**_ + profic/proshippers kys 
++ _**18+ & -12 dni**_ + profiction/proshippers kys 
 + **drama freaks dni im so tired of dealing with this shit**
  
 > i hide freely & have hidden a LOT of ppl  
