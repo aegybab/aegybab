@@ -7,7 +7,7 @@ i like enstars hypmic hlvrai n other stuff :v [me in media](https://txti.es/last
 
 > **don't copy / take inspo without asking first** ( **don't be afraid to ask, i don't bite** )
 
-+ **18+ & -12 dni + lolisho/proshippers kys** 
++ **18+ & -12 dni + lolisho/proshippers go kys** 
 + **drama freaks dni im so tired of dealing with this shit**
 + **please don't overuse sexual jokes or mention s/h & hospitals around me** 
  
