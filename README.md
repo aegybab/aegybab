@@ -3,6 +3,7 @@ call me jack / meru [++](https://en.pronouns.page/@gigolo) **xe**/rose — **13-
 i love my wife very much 💕  
 
 mentally ill & very sorry if i act weird . i usually don't int first coz social anxiety :(  
+feel free to int tho i reslly need new friends!,!!!  
 i like enstars hypmic hlvrai n other stuff :v [me in media](https://txti.es/lastwish)  
 
 > **don't copy / take inspo without asking first** ( **don't be afraid to ask, i don't bite** )
