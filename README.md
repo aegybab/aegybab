@@ -1,7 +1,7 @@
 ![](https://cdn.discordapp.com/attachments/1021493695759003668/1085989429040140408/image.png)  
 call me jack / meru [++](https://en.pronouns.page/@gigolo) **xe**/rose  
 **13-14** xntp 9w8 ![](https://mikejima.crd.co/assets/images/shadow/08e2be73_original.jpg?v=03449813) ![](https://autism.crd.co/assets/images/gallery04/8d7e9be6_original.jpg?v=aaa3f391) acespec  
-i love my partner very much!! 💕 ![](https://mikejima.crd.co/assets/images/shadow/00706cfb_original.gif?v=03449813)  
+i love my partner very much!! 💕 ![](https://autism.crd.co/assets/images/gallery06/3a4b6b51_original.gif?v=aaa3f391)  
 
 mentally ill & very sorry if i act weird ,,  
 i usually don't int first coz social anxiety :(  
