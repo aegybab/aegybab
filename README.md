@@ -1,6 +1,6 @@
 call me jack / meru [++](https://en.pronouns.page/@gigolo) **xe**/rose  
-**13-14** xntp 9w8 ![](https://mikejima.crd.co/assets/images/shadow/08e2be73_original.jpg?v=03449813) ![](https://autism.crd.co/assets/images/gallery04/8d7e9be6_original.jpg?v=aaa3f391) acespec*??*  
-i love sonny my silliest ![](https://autism.crd.co/assets/images/gallery07/d51dacc1_original.gif?v=aaa3f391)  
+**13-14** xntp 9w8 ![](https://mikejima.crd.co/assets/images/shadow/08e2be73_original.jpg?v=03449813) ![](https://autism.crd.co/assets/images/gallery04/8d7e9be6_original.jpg?v=aaa3f391) acespec_??_  
+sonny is my silliest.. ![](https://autism.crd.co/assets/images/gallery07/d51dacc1_original.gif?v=aaa3f391)  
 
 mentally ill & *very sorry* if i act weird ,,  
 i usually don't int first coz *social anxiety* :(  
