@@ -9,8 +9,8 @@ i like enstars hypmic hlvrai n other stuff :v [me in media](https://txti.es/last
 
 > **don't copy / take inspo from me without asking first** ( **don't be afraid to ask, i don't bite** )
 
-+ **drama freaks dni, im so worn out keep me out of it**
-+ **just hide me if you have a (NON SERIOUS) issue with me**
++ **drama freaks dni, im so worn out please keep me out of it**
++ **just hide me if you have a (non-serious) issue with me**
 + **please don't overuse sexual jokes or mention s/h & hospitals around me** 
  
 > *i hide freely & have hidden a LOT of ppl. dont ask why i hid u i prolly wont remember*
