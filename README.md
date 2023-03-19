@@ -10,4 +10,4 @@ i like enstars hypmic hlvrai n other stuff.. [me in media](https://txti.es/lastw
 
 + **hide me if you have a (non-serious) issue with me**
 + **don't overuse sexual jokes or mention s/h & hospitals around me**  
-> *i have a long hidelist & hide freely*
+> *i have hide a lot of ppl freely ( dont ask why i prolly wont remember )*
