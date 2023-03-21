@@ -1,4 +1,4 @@
-jack or sena, xe/any  
+jack / meru (*or sena*) xe/any  
 [main rengry ehmmm](https://rentry.org/scenario_liar)  
 shakes my head  
 typically non verbal / semi verbal ✌  
