@@ -1,5 +1,5 @@
-jack or sena, xe/any — [main](https://rentry.org/scenario_liar) + [this is importsnt too](https://rentry.org/littlegemini)  
-also im episodically [this bitch](https://ensemble-stars.fandom.com/wiki/Izumi_Sena) what THE FUCK?? who asked  
+jack or sena, xe/any  
+[main rengry ehmmm](https://rentry.org/scenario_liar)  
 shakes my head im so boyfailure  
 typically non verbal / semi verbal ✌  
-i miss my love a lot. :( my head is so full
+im having a meltdown im gonna cry helsp 
