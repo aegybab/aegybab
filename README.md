@@ -1,5 +1,5 @@
-jack / sena — xe/any [main rentry](https://rentry.org/scenario_liar)  
-[episodic rentry](https://rentry.org/littlegemini) (shakes my head im so boyfailure)  
+jack / sena — xe/any [main](https://rentry.org/scenario_liar) + [this is importsnt too](https://rentry.org/littlegemini)  
+(shakes my head im so boyfailure)  
 im also episodically [this bitch](https://ensemble-stars.fandom.com/wiki/Izumi_Sena) what THE FUCK??  
 i swear im normal when im not mental ☹️  
 suspecting bpd / szd I MISSS MY FP OOOGGGH!!!! FAUCK  
