@@ -4,4 +4,5 @@ jack / meru (*or sena*) xe/rose [squish squish](https://github.com/ichikuu)
 shakes my head my brain shortcircuits often  
 typically non verbal / semi verbal  
 pull up in the whip and go fast like ferrawriiiii  
+im cringe so be careful its like the plague  
 + **IM GOING TO EXPLODE!!!** ![](https://cdn.discordapp.com/attachments/729124835296280689/1087785064059916319/image.png)  
