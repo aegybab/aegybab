@@ -1,4 +1,3 @@
-#### heyy
 - jack meru or sena **xe**/[any](https://en.pronouns.page/@gigolo) white tme questioning  
 [hello guy](https://github.com/ichikuu) | main [rengry](https://rentry.org/scenario_liar) ehmmm + [makotools](https://enstars.link/@matenrou)  
 - shakes my head. my brain shortcircuits often and i'm not very social  
