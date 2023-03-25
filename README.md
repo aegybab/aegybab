@@ -4,3 +4,4 @@ jack / meru (*or sena*) xe/rose [*SQUISHES YOU*](https://github.com/ichikuu)
 shakes my head.. my brain shortcircuits often  
 typically non verbal / semi verbal sorryy  
 im cringe so be careful its like the plague ![](https://cdn.discordapp.com/attachments/729124835296280689/1087785064059916319/image.png)  
+![](https://cdn.discordapp.com/attachments/729124835296280689/1089073187712675850/image.jpeg)
