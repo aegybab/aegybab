@@ -1,5 +1,5 @@
 ![](https://autism.crd.co/assets/images/gallery01/23c4664a_original.gif?v=aaa3f391)  
-jack / meru (*or sena*) xe/rose [*SQUISH*](https://github.com/ichikuu)  
+jack / meru (*or sena*) xe/rose ([*SQUISH*](https://github.com/ichikuu))  
 [main rengry ehmmm](https://rentry.org/scenario_liar) + [makotools](https://enstars.link/@matenrou) yay  
 shakes my head.. my brain shortcircuits often  
 typically non verbal / semi verbal sorryy  
