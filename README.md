@@ -3,6 +3,7 @@
 - my brain shortcircuits often and i'm not very social...  
 i don't really know how to speak to people or make friends  
 but please feel free to int, especially if we share interests!  
-i'm like. very lonely and need new friends </3
+i'm like. very lonely and need new friends </3  
+**USUALLY i'm afk so whisp me if you need my attention!!**
 
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1089073187712675850/image.jpeg)
