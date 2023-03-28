@@ -1,5 +1,5 @@
 - **jack**! or meru/sena, **xe**/[*any*](https://en.pronouns.page/@gigolo)  
-[rengtry](https://rentry.org/scenario_liar) + [makotools](https://enstars.link/@matenrou)  
+[rengtry](https://rentry.org/scenario_liar) + [makotools](https://enstars.link/@matenrou) & [twt](https://mobile.twitter.com/toragic)  
 - my brain shortcircuits often and i'm not very social...  
 i don't really know how to speak to people or make friends  
 but please feel free to int, especially if we share interests!  
