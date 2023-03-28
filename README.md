@@ -4,6 +4,7 @@
 i don't really know how to speak to people or make friends  
 but please feel free to int, especially if we share interests!  
 i'm like. very lonely and need new friends </3  
-**USUALLY i'm afk so whisp me if you need my attention!!**
+**USUALLY i'm afk so whisp me if you need my attention!!**  
+ - no inspo without asking first please,, i don't bite
 
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1089073187712675850/image.jpeg)
