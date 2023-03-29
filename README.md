@@ -1,6 +1,6 @@
 - **jack**! or meru/sena, **xe**/[*any*](https://en.pronouns.page/@gigolo)  
 [rengtry](https://rentry.org/scenario_liar) + [makotools](https://enstars.link/@matenrou) & [twt](https://mobile.twitter.com/toragic)  
-- i'm not rlly social & i'm bad at making friends,  
+- Im not rlly social & im Very Bad at making friends,  
 please feel free to int tho! especially if we share interests,  
 i'm just very lonely and i need to make new friends so ummmm  
 
