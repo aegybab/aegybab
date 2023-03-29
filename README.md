@@ -1,10 +1,9 @@
 - **jack**! or meru/sena, **xe**/[*any*](https://en.pronouns.page/@gigolo)  
 [rengtry](https://rentry.org/scenario_liar) + [makotools](https://enstars.link/@matenrou) & [twt](https://mobile.twitter.com/toragic)  
-- my brain shortcircuits often and i'm not very social...  
-i don't really know how to speak to people or make friends  
-but please feel free to int, especially if we share interests!  
-i'm like. very lonely and need new friends </3  
-**USUALLY i'm afk so whisp me if you need my attention!!**  
- - no inspo without asking first please,, i don't bite
+- i'm not rlly social & i'm bad at making friends,  
+please feel free to int tho! especially if we share interests,  
+i'm just very lonely and i need to make new friends so ummmm  
+
+ - don't copy / take inspo from me without permission
 
 ![](https://cdn.discordapp.com/attachments/729124835296280689/1089073187712675850/image.jpeg)
