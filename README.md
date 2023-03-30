@@ -7,4 +7,5 @@ i am quick to drop people if you break my boundaries (shrug)
 
  - don't copy / take inspo from me without permission thanks
 
-![](https://cdn.discordapp.com/attachments/729124835296280689/1089073187712675850/image.jpeg)
+![](https://cdn.discordapp.com/attachments/729124835296280689/1089073187712675850/image.jpeg)  
+( i am very self conscious and edit this a lot )
