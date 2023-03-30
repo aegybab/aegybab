@@ -2,7 +2,7 @@
 [rengtry](https://rentry.org/scenario_liar) + [makotools](https://enstars.link/@matenrou) & [twt](https://mobile.twitter.com/toragic) + [me's](https://txti.es/lastwish)  
 - Im not rlly social & im Very Bad at making friends,  
 please feel free to int tho! especially if we share interests,  
-i'm just very lonely and i need to make new friends so ummmm  
+i'm just very lonely and i need to make new friends so ..  
 
  - don't copy / take inspo from me without permission
 
