@@ -1,1 +1,2 @@
-[+](https://en.pronouns.page/@gigolo) teb / jack
+[++](https://rentry.org/tebrim) teb / jack / isa 💙  
+i draw & like coding
