@@ -3,6 +3,7 @@
 ![](https://wilardo.crd.co/assets/images/gallery27/2cecaabb_original.png?v=3a39217c) **teb** or isa / **jack**ie, xe **zir** [she](https://en.pronouns.page/@tebo) ![](https://mikejima.crd.co/assets/images/shadow/485b8fb5_original.gif?v=16e7e82c)  
 white **14y** xntp ![](https://mikejima.crd.co/assets/images/shadow/52ec774c_original.gif?v=16e7e82c) tme aro lesbian   
 i like enstars and hlvrai So sorry.  
+[my carrd!](https://tebrim.carrd.co/)  
 
 i hide freely, dont go out of your  
 way to ask me why i hid you ![](https://cdn.discordapp.com/attachments/729124835296280689/1087785064059916319/image.png)   
