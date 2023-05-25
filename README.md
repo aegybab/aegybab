@@ -5,4 +5,7 @@ i like enstars and hlvrai So sorry.
 ![](https://mikejima.crd.co/assets/images/shadow/485b8fb5_original.gif?v=16e7e82c) [extended info](https://tebrim.carrd.co/) i hide freely  
 
 ![](https://wilardo.crd.co/assets/images/gallery09/48de10c8_original.gif?v=3a39217c) ![](https://wilardo.crd.co/assets/images/gallery12/8c6124d0_original.gif?v=3a39217c)  
-![](https://wilardo.crd.co/assets/images/gallery01/0fdf6f44_original.gif?v=3a39217c) ![](https://wilardo.crd.co/assets/images/gallery25/ac56e3a3_original.gif?v=7ff558b6)
+![](https://wilardo.crd.co/assets/images/gallery01/0fdf6f44_original.gif?v=3a39217c) ![](https://wilardo.crd.co/assets/images/gallery25/ac56e3a3_original.gif?v=7ff558b6)  
+
+![](https://cdn.discordapp.com/attachments/729124835296280689/1111441556298289182/IMG_3235.gif)  
+![](https://cdn.discordapp.com/attachments/729124835296280689/1111438760261992479/IMG_3223.gif) ![](https://cdn.discordapp.com/attachments/729124835296280689/1111440366940475412/IMG_3228.gif) ![](https://cdn.discordapp.com/attachments/729124835296280689/1111441556688343110/IMG_3236.gif)
