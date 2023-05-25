@@ -5,6 +5,7 @@ i like enstars and hlvrai So sorry.
 ![](https://mikejima.crd.co/assets/images/shadow/485b8fb5_original.gif?v=16e7e82c) [extended](https://tebrim.carrd.co/) info! i hide freely  
 
 dont go out of your way to ask me why i hid you ![](https://cdn.discordapp.com/attachments/729124835296280689/1087785064059916319/image.png)   
+Hi this is my sister [@camiigloo](https://github.com/camiigloo) so cool Wow  
 
 ![](https://wilardo.crd.co/assets/images/gallery09/48de10c8_original.gif?v=3a39217c)  
 ![](https://wilardo.crd.co/assets/images/gallery12/8c6124d0_original.gif?v=3a39217c)  
