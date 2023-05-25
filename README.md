@@ -3,8 +3,8 @@
 ![](https://wilardo.crd.co/assets/images/gallery27/2cecaabb_original.png?v=3a39217c) [+](https://en.pronouns.page/@tebo) **14y** white tme aro lesbian ![](https://mikejima.crd.co/assets/images/shadow/52ec774c_original.gif?v=16e7e82c)  
 i like enstars and hlvrai So sorry.  
 ![](https://mikejima.crd.co/assets/images/shadow/485b8fb5_original.gif?v=16e7e82c) [extended info](https://tebrim.carrd.co/)! i hide freely  
+dont try to ask me why i hid you ![](https://cdn.discordapp.com/attachments/729124835296280689/1087785064059916319/image.png)   
 
-dont go out of your way to ask me why i hid you ![](https://cdn.discordapp.com/attachments/729124835296280689/1087785064059916319/image.png)   
 Hi [@camiigloo](https://github.com/camiigloo) is my sister so cool Wow hello  
 
 ![](https://wilardo.crd.co/assets/images/gallery09/48de10c8_original.gif?v=3a39217c) ![](https://wilardo.crd.co/assets/images/gallery12/8c6124d0_original.gif?v=3a39217c)  
