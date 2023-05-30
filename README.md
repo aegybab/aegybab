@@ -1,4 +1,3 @@
-dont never buy no weed from the gas station bro :sob:  
 jackie / tebrim / teff  
 xe/she[++](https://pronouns.cc/@jack) 14y aro ⚢  
 [carrd](https://tebrim.carrd.co/) + [SAY HI :-)](https://retrospring.net/@tebrim)  
