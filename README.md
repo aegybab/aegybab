@@ -1,6 +1,7 @@
 jackie / tebrim / teff  
 xe/she[++](https://pronouns.cc/@jack) 14y aro ⚢  
 [carrd](https://tebrim.carrd.co/) + [SAY HI :-)](https://retrospring.net/@tebrim)  
+usually semi-verbal sorry if i dont talk much
 
 ranfren + nijien fans dni roflcopter  
 dont make me tap the fucking sign! **ship ints DNI** unless were friends  
