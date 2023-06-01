@@ -1,3 +1,4 @@
+i hate this fucking game  
 ![](https://media.discordapp.net/attachments/729124835296280689/1113228238714572962/IMG_3377.gif)  
 jackie / tebrim / teff, xe/she[+](https://pronouns.cc/@jack) **14y** aro ⚢ [carrd](https://tebrim.carrd.co/) + [say hi! :-)](https://retrospring.net/@tebrim)  
 
